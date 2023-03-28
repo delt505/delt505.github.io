@@ -1,1 +1,0 @@
-# delt505.github.io
